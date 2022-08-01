@@ -8,4 +8,4 @@
   
 ##
 
-![cv2022_page-0001](https://user-images.githubusercontent.com/52534676/179775646-ad0196ee-42d0-4744-bb09-6b9d0374110d.jpg)
+![Emanuel-Alderete_page-0001](https://user-images.githubusercontent.com/52534676/182209108-be9f9537-d004-4df4-a8c7-72b9c03be937.jpg)
